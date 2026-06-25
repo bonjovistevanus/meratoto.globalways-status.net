@@ -1,0 +1,1 @@
+# meratoto.globalways-status.net
